@@ -2,4 +2,5 @@
 
 Статистика:
 
-![image](https://github.com/user-attachments/assets/3a1bc74d-e8aa-49bd-8265-2fff3bd7c1ea)
+![image](https://github.com/user-attachments/assets/c96a7b9f-1d0c-41b8-afce-16ca193a27b2)
+
